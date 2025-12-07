@@ -18,4 +18,4 @@ structured and step-by-step work • clear logic • problem-solving mindset
 ## Contact
 **LinkedIn:** https://www.linkedin.com/in/tułuppavel468  
 **Email:** tuluppavel2005@gmail.com  
-**Telegram:** @tulupuu
+**Telegram:** @PTulup
